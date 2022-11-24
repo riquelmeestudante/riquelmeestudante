@@ -1,0 +1,7 @@
+- Riquelme Santos.
+- 16 anos.
+- Maior hobby Jogar futebol.
+- Párana PR.
+- Palmeiras.
+- 08/07.
+-
